@@ -2,7 +2,9 @@
 
 Survey analysis:
 ➤ We have conducted a survey in several villages
+
 ➤ The report of the survey says that people need to check their health condi frequently
+
 ➤ In villages there is no proper hospitals and health care centers
 ➤ They said, they need to spend their hole day to go to hospitals which far away from their place and also they are not having a bad health condition instead they need to check their health condition regularly
 ➤ The most of the peoples are daily wages workers they did not spend their hole day it will reflect on their income
